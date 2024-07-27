@@ -1,1 +1,1 @@
-# Biznis-s-mi-kou
+# Biznis-s-mikou
